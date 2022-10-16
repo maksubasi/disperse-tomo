@@ -1,3 +1,3 @@
 # disperse-tomo
 
-Link Alternaive: https://disperse-tomo.padiswap.com
+Link Alternative: https://disperse-tomo.padiswap.com
